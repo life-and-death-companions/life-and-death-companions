@@ -10,5 +10,3 @@
 <img src="https://files.catbox.moe/mj8z9t.png" width="400">
 
 </p>
-
-✦. ── ren[try](https://rentry.co/evilrussian) ˖⁺‧♡‧⁺˖ [car](https://lifendeathcompanions.carrd.co)rd ── .✦
