@@ -7,6 +7,6 @@
 
 <p align="center">
 
-<img src="https://files.catbox.moe/mj8z9t.png" width="400">
+<img src="https://files.catbox.moe/5wp9yy.png" width="400">
 
 </p>
