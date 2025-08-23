@@ -9,3 +9,7 @@
 <img src="https://files.catbox.moe/760vzy.PNG" width="400">
 
 </p>
+
+<div id="header" align="left">
+  
+kinlist: Caesar (Roses and Champagne), Yeo Tae-joo (Low Tide in Twilight), Norton (Identity V), Gord (Mobile Legens Bang Bang), Zhenya (Code name Anastasia)
