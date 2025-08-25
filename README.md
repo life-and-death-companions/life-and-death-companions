@@ -12,4 +12,4 @@
 
 <div id="header" align="left">
   
-kinlist: Caesar (Roses and Champagne), Yeo Tae-joo (Low Tide in Twilight), Norton (Identity V), Gord (Mobile Legends Bang Bang), Zhenya (Code name Anastasia), William Afton (FNaF)
+kinlist: Caesar (Roses and Champagne), Yeo Tae-joo, Norton, Gord (Mobile Legends Bang Bang), Zhenya (Code name Anastasia), William Afton, Dazai, Gojo Satoru
