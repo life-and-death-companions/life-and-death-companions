@@ -11,5 +11,3 @@
 </p>
 
 <div id="header" align="left">
-  
-kinlist: Caesar Roses and Champagne, Yeo Tae-joo, Norton idv, Gord mlbb, Zhenya Code name Anastasia, William Afton, Dazai, Gojo Satoru, Luka alnst, Cirrus litc
