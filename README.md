@@ -19,7 +19,7 @@ $\small\color{#b2ab92}{\textsf{, 　Idéntica}}$ $\small\color{#5f6856}{\textsf{
 </a>
 
 
- 　 <a href="https://zombie-picnic.atabook.org">
+ 　 ⠀⠀<a href="https://zombie-picnic.atabook.org">
   <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8774.PNG" alt="rentry" width="100">
 </a>
 
