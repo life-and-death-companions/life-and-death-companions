@@ -10,17 +10,13 @@ $\small\color{#b2ab92}{\textsf{, 　Idéntica}}$ $\small\color{#5f6856}{\textsf{
 
  $\small\color{#303e33}{\textsf{' El mío}}$ $\small\color{#5f6856}{\textsf{݁es de}}$ $\small\color{#303e33}{\textsf{agonía ۫ ׅ...}}$
 
-<a href="https://rentry.co/yeon_sieun">
-  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8785.PNG" alt="rentry" width="80">
-</a> 
-
 <a href="https://male1pregnancy.carrd.co/">
   <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8784.PNG" alt="rentry" width="90">
 </a>
 
-
- 　 ⠀<a href="https://zombie-picnic.atabook.org">
+<a href="https://zombie-picnic.atabook.org">
   <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8783.PNG" alt="rentry" width="100">
 </a>
+
 
  　 　![](https://komarev.com/ghpvc/?username=EVILRUSSIAN&label=^__^&color=1c180f&style=plastic&base=100)
