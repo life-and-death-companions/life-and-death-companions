@@ -8,10 +8,13 @@
 
 $\small\color{#3b362e}{\textsf{, 　I'm}}$ $\small\color{#7e7766}{\textsf{gonna　𓂁𓂄}}$ $\small\color{#3b362e}{\textsf{　find ya}}$
 
+<img align="right" width="200px" salt="image" src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8803.PNG" />
+
+</p>
+
 　 $\small\color{#504b3d}{\textsf{I'm}}$ $\small\color{#7e7766}{\textsf{݁gonna}}$ $\small\color{#d1c9b4}{\textsf{get ya}}$ $\small\color{#d1c9b4}{\textsf{݁.ᐟ}}$
 
  $\small\color{#82a8ae}{\textsf{' get ya}}$ $\small\color{#d1c9b4}{\textsf{݁get ya}}$ $\small\color{#82a8ae}{\textsf{get ya}}$ $\small\color{#d1c9b4}{\textsf{ ̸/̸̅̅ ̆̅ ̅̅ ̅̅ ̅̅ ...}}$
-
 
 <a href="https://male1pregnancy.carrd.co/">
   <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8801.PNG" alt="rentry" width="100">
