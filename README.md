@@ -8,7 +8,7 @@
 
 $\small\color{#3b362e}{\textsf{, 　I'm}}$ $\small\color{#7e7766}{\textsf{gonna　𓂁𓂄}}$ $\small\color{#3b362e}{\textsf{　find ya}}$
 
-<img align="right" width="200px" salt="image" src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8803.PNG" />
+<img align="right" width="250px" salt="image" src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8803.PNG" />
 
 </p>
 
