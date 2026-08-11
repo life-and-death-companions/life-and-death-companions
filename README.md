@@ -1,22 +1,22 @@
-<img align="left" width="350px" salt="image" src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8765.PNG" />
+<img align="left" width="350px" salt="image" src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8799.PNG" />
 
  </p>
 
- 　 $\small\color{#b2ab92}{\textsf{Es}}$ $\small\color{#5f6856}{\textsf{de}}$ $\small\color{#b2ab92}{\textsf{anatomía}}$ $\small\color{#5f6856}{\textsf{.ᐟ}}$
+ 　 　![](https://komarev.com/ghpvc/?username=EVILRUSSIAN&label=^__^&color=82a8ae&style=plastic&base=100)
+   
+   $\small\color{#82a8ae}{\textsf{One}}$ $\small\color{#d1c9b4}{\textsf{way}}$ $\small\color{#82a8ae}{\textsf{or another}}$ $\small\color{#504b3d}{\textsf{⟐}}$
 
-$\small\color{#b2ab92}{\textsf{, 　Idéntica}}$ $\small\color{#5f6856}{\textsf{a la 𓂃}}$ $\small\color{#303e33}{\textsf{mía}}$
+$\small\color{#3b362e}{\textsf{, 　I'm}}$ $\small\color{#7e7766}{\textsf{gonna　𓂁𓂄}}$ $\small\color{#3b362e}{\textsf{　find ya}}$
 
-　 $\small\color{#303e33}{\textsf{Su rostro}}$ $\small\color{#5f6856}{\textsf{݁es de}}$ $\small\color{#b2ab92}{\textsf{alegría}}$ $\small\color{#5f6856}{\textsf{݁🗡}}$
+　 $\small\color{#504b3d}{\textsf{I'm}}$ $\small\color{#7e7766}{\textsf{݁gonna}}$ $\small\color{#d1c9b4}{\textsf{get ya}}$ $\small\color{#d1c9b4}{\textsf{݁.ᐟ}}$
 
- $\small\color{#303e33}{\textsf{' El mío}}$ $\small\color{#5f6856}{\textsf{݁es de}}$ $\small\color{#303e33}{\textsf{agonía ۫ ׅ...}}$
+ $\small\color{#82a8ae}{\textsf{' get ya}}$ $\small\color{#d1c9b4}{\textsf{݁get ya}}$ $\small\color{#82a8ae}{\textsf{get ya}}$ $\small\color{#d1c9b4}{\textsf{ ̸/̸̅̅ ̆̅ ̅̅ ̅̅ ̅̅ ...}}$
+
 
 <a href="https://male1pregnancy.carrd.co/">
-  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8784.PNG" alt="rentry" width="90">
+  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8801.PNG" alt="rentry" width="100">
 </a>
 
 <a href="https://zombie-picnic.atabook.org">
-  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8783.PNG" alt="rentry" width="100">
+  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8800.PNG" alt="rentry" width="100">
 </a>
-
-
- 　 　![](https://komarev.com/ghpvc/?username=EVILRUSSIAN&label=^__^&color=1c180f&style=plastic&base=100)
