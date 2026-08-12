@@ -2,7 +2,7 @@
 
  </p>
 
- 　 　![](https://komarev.com/ghpvc/?username=EVILRUSSIAN&label=^__^&color=3b362e&style=plastic&base=100)
+ 　 　![](https://komarev.com/ghpvc/?username=EVILRUSSIAN&label=zegectlings&color=3b362e&style=plastic&base=100)
    
    $\small\color{#82a8ae}{\textsf{One}}$ $\small\color{#d1c9b4}{\textsf{way}}$ $\small\color{#82a8ae}{\textsf{or another}}$ $\small\color{#504b3d}{\textsf{⟐}}$
 
