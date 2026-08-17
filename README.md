@@ -20,6 +20,10 @@ $\small\color{#3b362e}{\textsf{, 　I'm}}$ $\small\color{#7e7766}{\textsf{gonna�
   <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8801.PNG" alt="rentry" width="100">
 </a>
 
-<a href="https://zombie-picnic.atabook.org">
+<a href="https://guns.lol/rregect">
+  <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8841.PNG" alt="rentry" width="100">
+</a>
+
+ 　 　 <a href="https://zombie-picnic.atabook.org">
   <img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8800.PNG" alt="rentry" width="100">
 </a>
